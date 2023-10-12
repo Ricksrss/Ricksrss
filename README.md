@@ -1,4 +1,4 @@
-# 👋 Olá! Eu sou Henrique Soares
+# 👋 Olá! Eu sou Rick Soares
 
 ## 💼 Em transição de carreira, apaixonado por tecnologia
 
